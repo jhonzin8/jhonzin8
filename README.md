@@ -1,4 +1,10 @@
-### Hi there 👋
+# Sobre mim
+- Olá, eu sou o João Kutianski;
+- Estou interessado em cursos;
+- Atualmente estou aprendendo SCRATCH e JAVASCRIPT;
+- Estou disponível para colaborar e ajudar meu colegas;
+- Instagram: @joaovitorkutianski
+- 
 
 <!--
 **jhonzin8/jhonzin8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
