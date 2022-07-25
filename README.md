@@ -4,6 +4,8 @@
 - Atualmente estou aprendendo SCRATCH e JAVASCRIPT;
 - Estou disponível para colaborar e ajudar meu colegas;
 - Instagram: @joaovitorkutianski
+- Meu objetivo é aprender sobre programação de jogos e aplicativos;
+- Gosto de trabalhar em grupo, pois sei socializar com os colegas de trabalho;
 
 <!--
 **jhonzin8/jhonzin8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
