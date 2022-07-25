@@ -8,7 +8,7 @@
 - Gosto de trabalhar em grupo, pois sei socializar com os colegas de trabalho;
 - Receba é o cara da luva de predeiro, obrigado meu deus SHIIIIIIIIIIIIIIUUUUUUUUUUUUU;
 - Faz o L
-
+- <a href=””><img src=https://blogs.correiobraziliense.com.br/dribledecorpo/obsessao-do-palmeiras-por-centroavantes-de-grife-deixou-passar-alternativas-como-german-cano/></img></a>
 
 <!--
 **jhonzin8/jhonzin8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
