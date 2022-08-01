@@ -8,6 +8,7 @@
 - Gosto de trabalhar em grupo, pois sei socializar com os colegas de trabalho;
 - Receba é o cara da luva de predeiro, obrigado meu deus SHIIIIIIIIIIIIIIUUUUUUUUUUUUU;
 - Faz o L
+- Teve gol do Santos e não foi do Baptistão, ele tem o 9 atrás da camisa quem que fez o gol foi o Marcos Leonardo menino da vila se cair no alçapão sabe que o Peixão fuzila;
 
 <!--
 **jhonzin8/jhonzin8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
