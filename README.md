@@ -9,6 +9,8 @@
 - Receba é o cara da luva de predeiro, obrigado meu deus SHIIIIIIIIIIIIIIUUUUUUUUUUUUU;
 - Faz o L
 - Teve gol do Santos e não foi do Baptistão, ele tem o 9 atrás da camisa quem que fez o gol foi o Marcos Leonardo menino da vila se cair no alçapão sabe que o Peixão fuzila;
+- <a href=><img src=https://upload.wikimedia.org/wikipedia/pt/0/02/Homer_Simpson_2006.png></img></a>
+
 
 <!--
 **jhonzin8/jhonzin8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
